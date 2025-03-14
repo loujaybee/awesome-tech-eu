@@ -4,3 +4,7 @@ I am a techno-optimist who is passionate about the EU and making Europe a great 
 * https://euacc.com/
 * https://eu-acc.com/
 * https://futurehouse.uk/
+
+Blogs: 
+* https://a16z.com/the-techno-optimist-manifesto/
+* https://loujaybee.com/new-york-ambition-and-a-will-to-win
